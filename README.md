@@ -1,2 +1,8 @@
-https://vxlo.xyz/v-xa/
-<img src="data:image/svg+xml,<svg xmlns='http://www.w3.org/2000/svg'><script>alert('gyat')</script></svg>" />
+https://vxlo.xyz/v-xa
+https://vxlo.xyz
+https://discord.gg/getvxlo 
+
+      ／|、             
+    （ﾟ､ ｡ ７         
+       l  ~ヽ       
+      じしf_,)ノ
