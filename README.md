@@ -1,6 +1,6 @@
-https://vxlo.xyz/v-xa
-https://vxlo.xyz
-https://discord.gg/getvxlo 
+https://vxlo.xyz/v-xa \n
+https://vxlo.xyz \n
+https://discord.gg/getvxlo \n
 
       ／|、             
     （ﾟ､ ｡ ７         
