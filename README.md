@@ -1,4 +1,4 @@
-<p align="center"><i>hi, im mati</i></p>
+<h2 align="center"><i>hey, I'm Mati.</i></h2>
 
 <p align="center">
   <a href="https://vxlo.xyz/v-xa">vxlo.xyz/v-xa</a><br>
